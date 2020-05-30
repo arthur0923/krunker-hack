@@ -17,3 +17,5 @@ to use https://github.com/arthur0923/krunker-hack/blob/master/newest%20shell%20s
 then download https://chrome.google.com/webstore/detail/tampermonkey/dhdgffkkebhmkfjojejmpbldmpobfkfo?hl=en on chrome
 then click on create now script. delete the starter script on there copy shell shockers hack 2020 to it.
 press command s or if you use a windows computer press ctr s
+do the same thing for slither hack
+
