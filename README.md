@@ -18,4 +18,4 @@ then download https://chrome.google.com/webstore/detail/tampermonkey/dhdgffkkebh
 then click on create now script. delete the starter script on there copy shell shockers hack 2020 to it.
 press command s or if you use a windows computer press ctr s
 do the same thing for slither hack
-
+please join https://discord.gg/tWfTpat this,too
